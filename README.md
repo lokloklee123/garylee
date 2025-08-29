@@ -1,2 +1,2 @@
 # Garylee
-Gary Lee Profolio Page
+Gary Lee Protfolio Page
