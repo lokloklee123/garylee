@@ -1,2 +1,2 @@
 # Garylee
-Gary Lee Protfolio Page
+Gary Lee Portfolio Page
